@@ -1,1 +1,1 @@
-Practico Education coming soon page
+Practico Education coming soon page.
